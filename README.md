@@ -1,0 +1,2 @@
+# 91ec1893-d795-4d48-bb95-5e5394103307-hero-3
+Hero section variant 3 for 91ec1893-d795-4d48-bb95-5e5394103307
